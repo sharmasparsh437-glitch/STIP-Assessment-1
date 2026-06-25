@@ -1,1 +1,0 @@
-# STIP-Assessment-1
